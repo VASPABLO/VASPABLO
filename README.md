@@ -14,7 +14,6 @@
 
 - 🚀 Actualmente estoy en constante formación con cursos que potencian mi crecimiento profesional.
 
-- 🎨 En mi tiempo libre creo tonos de llamada, memes, plantillas y ediciones creativas.
 
 ---
 
